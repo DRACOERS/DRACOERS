@@ -1,3 +1,4 @@
+![IMG_0935](https://github.com/user-attachments/assets/72cd7103-59c5-4086-8171-8f01727f8f2e)
 sup! im draco. 
 dni list 
 18+ , basic dni
