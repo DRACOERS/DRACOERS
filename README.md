@@ -14,6 +14,9 @@ favorite poem? nothing gold can stay by  robert frost
 favorite band? glass animals 
 favorite animal? kiwi bird.
 
+i farted when i was working on this and it smells so bad 
+
+
 
 
 
