@@ -8,12 +8,13 @@ PLEASE INT IF:
 anyone not on my dni list
 GENREAL INFO 
 can be found on pronouns page a strawpage. 
+
 random questions:
 favorite poem? nothing gold can stay by  robert frost
 favorite band? glass animals 
 favorite animal? kiwi bird.
 
 
-i am always here to listen id rather you twlk me then suffer in silence!
+
 
 the rest of this is a wip okay
