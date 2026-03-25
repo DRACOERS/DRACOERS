@@ -1,3 +1,4 @@
+
 ![IMG_0935](https://github.com/user-attachments/assets/72cd7103-59c5-4086-8171-8f01727f8f2e)
 sup! im draco. 
 
@@ -32,7 +33,7 @@ favorite poem? nothing gold can stay by  robert frost
 favorite band? glass animals 
 
 favorite animal? kiwi bird.
-
+![IMG_1310](https://github.com/user-attachments/assets/49601a97-af7c-4f3b-bee5-f9717b36c506)
 
 
 
