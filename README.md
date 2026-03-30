@@ -2,7 +2,9 @@
 ![IMG_0935](https://github.com/user-attachments/assets/72cd7103-59c5-4086-8171-8f01727f8f2e)
 sup! im draco. 
 
-im a fictionkin 
+im a fictionkin (YES i kinshift/front ok) 
+
+BD
 
 i dont talk a lot sense im scare pls int though!!
 
