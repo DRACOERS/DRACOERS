@@ -14,7 +14,7 @@ dni list
 
 intrests:
 
-perks of being a wallflower, IT, The basketball diares, thirteen, i saw the tv glow,saw, final destination, Sally face, zero day , elphant (2003), Duck! The carbine hught massacure,worlds end club, yttd, mlp, etc...
+perks of being a wallflower, IT, The basketball diares, thirteen, i saw the tv glow,saw, final destination, Sally face, zero day , elphant (2003), Duck! The carbine high massacure,worlds end club, yttd, mlp, etc...
 
 PLEASE INT IF:
 
