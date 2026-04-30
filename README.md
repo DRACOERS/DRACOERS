@@ -4,7 +4,7 @@ sup! im draco.
 
 THE REAL CALVIN GABRIEL
 
-im a fictionkin (YES i kinshift/front ok) 
+im a fictionkin (YES i kinshift/front ok) , BD
 
 
 i dont talk a lot sense im scared, pls int first though if you wish !!
